@@ -1,4 +1,4 @@
-
+smart brookhaven rp Scripts is the best brookhaven rp Script, featuring god mode and one-hit kill. Safe and powerful for all your needs.
 
 
 
